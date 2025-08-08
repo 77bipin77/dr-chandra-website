@@ -181,7 +181,7 @@ Dr. Chandra is a qualified chiropractic and osteopathic specialist with 6+ years
 
 ## 🎨 Design Credits
 
-Designed with ❤️ by **Finding.Bipin**
+Designed with ❤️ by **BIPIN PANDEYn**
 
 ---
 
